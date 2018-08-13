@@ -1,0 +1,2 @@
+# SEGIMA
+GENERAL
